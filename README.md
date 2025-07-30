@@ -1,0 +1,2 @@
+# EazyLiving
+Everyday savings
